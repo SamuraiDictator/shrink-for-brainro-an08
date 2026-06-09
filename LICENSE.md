@@ -1,4 +1,4 @@
-
+Experience shrink for brainrots like never before with shrink for brainrots Script rare, the #1 Script. Includes fly and auto-upgrade for unbeatable
 
 
 
